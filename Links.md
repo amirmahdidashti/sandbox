@@ -2,6 +2,12 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-04 00:14 IR
+- 🎬 [روش‌هامون برای کنترل استرس و شنیدن پیامای شما! - دگم نباش 61.mp4](https://github.com/AmMhPl/sandbox/raw/main/dl/%D8%B1%D9%88%D8%B4%E2%80%8C%D9%87%D8%A7%D9%85%D9%88%D9%86%20%D8%A8%D8%B1%D8%A7%DB%8C%20%DA%A9%D9%86%D8%AA%D8%B1%D9%84%20%D8%A7%D8%B3%D8%AA%D8%B1%D8%B3%20%D9%88%20%D8%B4%D9%86%DB%8C%D8%AF%D9%86%20%D9%BE%DB%8C%D8%A7%D9%85%D8%A7%DB%8C%20%D8%B4%D9%85%D8%A7%21%20-%20%D8%AF%DA%AF%D9%85%20%D9%86%D8%A8%D8%A7%D8%B4%2061.mp4) `87.0MB`
+
+---
+
+
 ### 📅 2026-05-03 20:04 IR
 - 📥 [imgres](https://github.com/AmMhPl/sandbox/raw/main/dl/imgres) `29KB`
 
